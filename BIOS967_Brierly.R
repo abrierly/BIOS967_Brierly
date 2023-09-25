@@ -1,2 +1,0 @@
-## Brierly INDEPENDENT PROJECT
-8*2
